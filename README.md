@@ -1,1 +1,1 @@
-https://daria1616.github.io/PP/kakayabilanapp.html
+https://daria1616.github.io/PP/kakyabilanapp.html
